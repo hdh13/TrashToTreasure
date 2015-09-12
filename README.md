@@ -1,4 +1,4 @@
-# Trash to Treasure]
+# Trash to Treasure
 Vision & Scope
 
 Description
